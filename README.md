@@ -1,0 +1,1 @@
+# Çizgimania Ryzenen edition.
