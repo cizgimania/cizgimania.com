@@ -1,1 +1,1 @@
-# Çizgimania Ryzenen edition.
+# Çizgiflix by Ryzenen.
