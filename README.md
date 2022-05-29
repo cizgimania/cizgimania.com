@@ -1,1 +1,0 @@
-# Çizgiflix by Ryzenen.
